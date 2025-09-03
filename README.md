@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4C6A85&width=435&lines=RxVerse+%7C+https%3A%2F%2Fguns.lol%2Frxverse;https%3A%2F%2Fdiscord.topeka.fun+%7C+https%3A%2F%2Ftopeka.fun)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=4C6A85&width=435&lines=RxVerse+%7C+https%3A%2F%2Frxverse.rf.gd)](https://git.io/typing-svg)
 
 ###
 
